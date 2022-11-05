@@ -1,2 +1,1 @@
-# illest
-Illest-on-wax
+# illestbrand is what I Be, & what I do is brought to you by my manic & mania battling it out in my brain together they create the image for which I've named Illestbrand on almost every domain you'll find me  A degenerate compelled By mania, fueled by insomnia & driven by rage, ink bleeds out onto a page, dripping from my hand as i create the Illestbrand
